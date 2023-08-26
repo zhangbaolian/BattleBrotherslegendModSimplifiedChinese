@@ -1,0 +1,2 @@
+# BattleBrotherslegendModSimplifiedChinese
+战场兄弟传奇MOD简体中文汉化
